@@ -1,2 +1,0 @@
-# alur-o
-alurão
